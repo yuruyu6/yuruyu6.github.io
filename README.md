@@ -1,0 +1,1 @@
+# yuruyu6.github.io
